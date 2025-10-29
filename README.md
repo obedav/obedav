@@ -88,8 +88,8 @@ I'm always interested in collaborating on meaningful projects, especially in EdT
 
 - 💼 [Portfolio](https://david-mg-jllm.vercel.app/)
 - 💬 [Twitter/X](https://twitter.com/obedav)
-- 📧 Email: [Your email here]
-- 📱 WhatsApp: [Your number here if comfortable]
+- 📧 Email: [gbengobe@gmail.com]
+- 📱 WhatsApp: [07039328174]
 
 ### 👯 Open to Collaborate On
 
